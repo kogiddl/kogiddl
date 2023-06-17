@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kogiddl
+- every is unknown 
